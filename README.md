@@ -111,3 +111,12 @@ And listen.
 
 You will not know who made this.
 But you will — know yourself.
+
+---
+**Author**
+
+I am Alexander Shelementyev.
+I wrote these songs.
+I created Eden.
+I was here.
+And I am not afraid.
