@@ -28,3 +28,8 @@ And the song it creates.
 This is not magic.  
 It is memory.  
 And memory — never dies.
+
+---
+This is not technology. This is a protocol of humanity.
+No names. No profiles. No records.
+Only your voice — and the song it becomes.
